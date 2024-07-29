@@ -1,5 +1,5 @@
 ol - 👋 hola seja bm vindo
-- 👀 advocaci
+- 👀 advocacia
 - 🌱 estou no ensino medio
 - 💞️  ajudar mais
 - 📫 no instagram...
