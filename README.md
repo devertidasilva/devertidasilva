@@ -1,8 +1,8 @@
 ol - 👋 hola seja bm vindo
-- 👀 adivogacia
+- 👀 advocaci
 - 🌱 estou no ensino medio
 - 💞️  ajudar mais
-- 📫 no instragam...
+- 📫 no instagram...
 - 😄 reverti
 - ⚡ conhecer o mundo: ...                       
 
